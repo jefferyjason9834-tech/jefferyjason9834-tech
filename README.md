@@ -1,5 +1,5 @@
 
-# Hi there, I'm Jeffery Jason! 👋
+# Hi there, I'm Elijah Jason Paul! 👋
 
 ### 💻 Aspiring C Programmer | Student | Tech Enthusiast
 
